@@ -1,1 +1,1 @@
-About page WEBPROG
+About my page
